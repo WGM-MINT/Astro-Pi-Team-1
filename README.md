@@ -1,1 +1,1 @@
-# Astor-Pi-Team-1
+# Astro-Pi-Team-1
